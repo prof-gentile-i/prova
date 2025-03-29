@@ -1,1 +1,2 @@
 Caratteristica innovativa
+Nuova riga
