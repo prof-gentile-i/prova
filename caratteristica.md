@@ -1,0 +1,1 @@
+Caratteristica innovativa
